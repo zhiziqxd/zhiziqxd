@@ -2,6 +2,6 @@
 - 👀 I’m interested in bridge
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on imnt.or.td
-- 📫 How to reach me @thepiationesl
+- 📫 How to reach me zhizi6@tutamail.com
 - 😄 Pronouns: Small quality barriers
 - ⚡ Fun fact: I lick play bridge,awalond
