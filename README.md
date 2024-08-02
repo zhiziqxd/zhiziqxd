@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on github
 - 📫 How to reach me zhizi6@tutamail.com
 - 😄 Pronouns: Small quality barriers
-- ⚡ Fun fact: I like play bridge,awalond
+- ⚡ Fun fact: I like play bridge
 
-原来的号：zhiziqixingdeng
+- I am a student.I like to code,but I prefer code to sleep.
